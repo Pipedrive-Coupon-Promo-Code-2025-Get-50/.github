@@ -1,5 +1,3 @@
-# Verified Pipedrive Coupon (2026) 26% Promo Discount + Trial
-
 We brought you verified [Pipedrive coupons](https://yupbeat.com/recommends/pipedrive/) for business and startups, using which you will be saving 26% annually, making this CRM more affordable.
 
 ## 26% OFF Pipedrive Coupon
